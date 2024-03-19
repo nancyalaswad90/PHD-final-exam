@@ -7,3 +7,7 @@
 > ## [Summary for  النظرية]()
 
 - [Lecturers خالد الطراونة  اول محاضرتين .pdf](https://github.com/nancyalaswad90/PHD-final-exam/files/13256334/Untitled.document.pdf) 
+
+
+
+- [Statement of risks and information related to information technology - Nancy Al Aswad.pptx](https://github.com/nancyalaswad90/PHD-final-exam/files/14645885/Statement.of.risks.and.information.related.to.information.technology.-.Nancy.Al.Aswad.pptx)
