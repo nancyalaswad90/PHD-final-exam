@@ -11,3 +11,14 @@
 
 
 - [Statement of risks and information related to information technology - Nancy Al Aswad.pptx](https://github.com/nancyalaswad90/PHD-final-exam/files/14645885/Statement.of.risks.and.information.related.to.information.technology.-.Nancy.Al.Aswad.pptx)
+
+
+
+=============================================================================
+
+> ##  Medical
+
+- Word  [مختبرات الانسجة.docx](https://github.com/nancyalaswad90/PHD-final-exam/files/14857894/default.docx)
+
+
+- PDF [مختبرات الانسجة.pdf](https://github.com/nancyalaswad90/PHD-final-exam/files/14857896/default.pdf)
