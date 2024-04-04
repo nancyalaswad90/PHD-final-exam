@@ -21,4 +21,6 @@
 - Word  [مختبرات الانسجة.docx](https://github.com/nancyalaswad90/PHD-final-exam/files/14857894/default.docx)
 
 
-- PDF [مختبرات الانسجة.pdf](https://github.com/nancyalaswad90/PHD-final-exam/files/14857896/default.pdf)
+- PDF [مختبرات الانسجة.pdf](https://github.com/nancyalaswad90/PHD-final-exam/files/14876443/default.pdf)
+[مختبرات الانسجة.docx](https://github.com/nancyalaswad90/PHD-final-exam/files/14876442/default.docx)
+
