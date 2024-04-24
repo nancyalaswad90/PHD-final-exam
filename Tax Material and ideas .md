@@ -17,4 +17,4 @@
 - [النفقات المقبولة وغير المقبولة ضريبياً.pptx](https://github.com/nancyalaswad90/PHD-final-exam/files/14221205/default.pptx)
 
 
-[التجنب الضريبي.pptx](https://github.com/nancyalaswad90/PHD-final-exam/files/14221203/default.pptx)
+- [التجنب الضريبي.pptx](https://github.com/nancyalaswad90/PHD-final-exam/files/14221203/default.pptx)
