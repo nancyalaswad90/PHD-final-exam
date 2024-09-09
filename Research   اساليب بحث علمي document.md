@@ -42,14 +42,28 @@
 
 - [ملخص الاستراتيجية-اسيل مقابلة -ملخص محترم.pdf](https://github.com/user-attachments/files/16928334/-.-.pdf)
 
+
 - [اسئله الميد أساليب بحث علمي (1).docx](https://github.com/user-attachments/files/16928333/1.docx)
   
 
 
-[اسئله الميد أساليب بحث علمي.docx](https://github.com/user-attachments/files/16928332/default.docx)
-[التحليل الوصفي (1).docx](https://github.com/user-attachments/files/16928331/1.docx)
-[التحليل الوصفي.docx](https://github.com/user-attachments/files/16928330/default.docx)
-[الخصائص الشخصية (1).docx](https://github.com/user-attachments/files/16928329/1.docx)
-[الخصائص الشخصية.docx](https://github.com/user-attachments/files/16928328/default.docx)
+
+ - [اسئله الميد أساليب بحث علمي.docx](https://github.com/user-attachments/files/16928332/default.docx)
+
+
+
+- [التحليل الوصفي (1).docx](https://github.com/user-attachments/files/16928331/1.docx)
+
+
+
+- [التحليل الوصفي.docx](https://github.com/user-attachments/files/16928330/default.docx)
+
+
+
+- [الخصائص الشخصية (1).docx](https://github.com/user-attachments/files/16928329/1.docx)
+
+
+
+- [الخصائص الشخصية.docx](https://github.com/user-attachments/files/16928328/default.docx)
 
 
