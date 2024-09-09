@@ -27,12 +27,25 @@
 ![WhatsApp Image 2023-07-28 at 3 43 33 PM (6)](https://github.com/user-attachments/assets/dbb5417d-760e-4636-8785-aae0ae3386f6)
 ![WhatsApp Image 2023-07-28 at 3 43 33 PM (7)](https://github.com/user-attachments/assets/417e3e2a-0d9c-411f-95c9-f6403639ec0c)
 ![WhatsApp Image 2023-07-28 at 3 43 33 PM (8)](https://github.com/user-attachments/assets/f8bf8977-dcc9-42b1-98af-48102418961b)
-[امتحان اساليب البحث العلمي.docx](https://github.com/user-attachments/files/16928338/default.docx)
-[مخطط وسيط (1).docx](https://github.com/user-attachments/files/16928337/1.docx)
-[مخطط وسيط.docx](https://github.com/user-attachments/files/16928336/default.docx)
-[ملخص الاستراتيجية-اسيل مقابلة -ملخص محترم (1).pdf](https://github.com/user-attachments/files/16928335/-.-.1.pdf)
-[ملخص الاستراتيجية-اسيل مقابلة -ملخص محترم.pdf](https://github.com/user-attachments/files/16928334/-.-.pdf)
-[اسئله الميد أساليب بحث علمي (1).docx](https://github.com/user-attachments/files/16928333/1.docx)
+
+> ## The PDF files 
+- [امتحان اساليب البحث العلمي.docx](https://github.com/user-attachments/files/16928338/default.docx)
+
+
+- [مخطط وسيط (1).docx](https://github.com/user-attachments/files/16928337/1.docx)
+
+- [مخطط وسيط.docx](https://github.com/user-attachments/files/16928336/default.docx)
+
+- [ملخص الاستراتيجية-اسيل مقابلة -ملخص محترم (1).pdf](https://github.com/user-attachments/files/16928335/-.-.1.pdf)
+
+
+
+- [ملخص الاستراتيجية-اسيل مقابلة -ملخص محترم.pdf](https://github.com/user-attachments/files/16928334/-.-.pdf)
+
+- [اسئله الميد أساليب بحث علمي (1).docx](https://github.com/user-attachments/files/16928333/1.docx)
+  
+
+
 [اسئله الميد أساليب بحث علمي.docx](https://github.com/user-attachments/files/16928332/default.docx)
 [التحليل الوصفي (1).docx](https://github.com/user-attachments/files/16928331/1.docx)
 [التحليل الوصفي.docx](https://github.com/user-attachments/files/16928330/default.docx)
